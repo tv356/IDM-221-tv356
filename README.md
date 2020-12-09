@@ -7,10 +7,10 @@
 [Ogilvy](https://www.ogilvy.com) 
 
 #### DuallStudio
-[DuallStudio] (https://duallstudio.com)
+[DuallStudio](https://duallstudio.com)
 
 #### Illo
-[ILLO] (https://illo.tv)
+[ILLO](https://illo.tv)
 
 ### About Me
 
